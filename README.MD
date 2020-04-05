@@ -1,0 +1,1 @@
+O curso é muito didatico, muito bom, estou aproveitando bastante.
